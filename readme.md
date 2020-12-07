@@ -9,6 +9,9 @@
 ## My work in blender
 * In the starting I used to get nervous that its not gonna be a thing of mone as all of the projects made by me at the start are a crap.
 * Later on I made myself better in all the aspects and now im able to make some nice looking renders out of blender.
+* The Example pic-1,2 tell about my skills now.
+* The pics of my first second projects are also there.
+* Even there is a pic of making my latest project.
 * You can find some of the my projrcts from the links below. So make sure to check them.
 
 ## My projects links :
